@@ -8,4 +8,3 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: small dick
 - 🖤 Fun fact2: smaller brain
--->
